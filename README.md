@@ -1,0 +1,8 @@
+- Yassin Qurbani
+- Interests: Coding Side Projects, Jazz Music, Reading, Coffee
+- Currently Learning: SQL, C, C#, Assembly
+- Have Learned: C++, Java, JavaScript, HTML, CSS
+- Looking to Collaborate on Side Projects With Fellow College Students!
+- Email: yqurbani123@gmail.com (Primary); yqurbani@csustan.edu (School)
+- Pronouns: He/Him
+- Fun Fact: I can play 10 instruments!
